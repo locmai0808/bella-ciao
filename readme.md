@@ -1,2 +1,25 @@
-[![](https://img.shields.io/badge/Made%20With-Github%20Spray-lightgrey.svg?style=for-the-badge&logo=github)](https://github.com/Annihil/github-spray)  
-[![](https://i.imgur.com/2DrTn0Z.gif)](https://github.com/Annihil/github-spray)
+Questa mattina mi sono alzato
+O bella ciao, bella ciao, bella ciao, ciao, ciao
+Questa mattina mi sono alzato
+E ho trovato l'invasor
+O partigiano
+Portami via
+O bella ciao, bella ciao, bella ciao, ciao, ciao
+O partigiano
+Portami via
+Che mi sento di morir
+O partigiano
+O partigiano
+O bella ciao, bella ciao
+O partigiano
+O partigiano
+O bella ciao, bella ciao
+E se muoio
+Da partigiano
+O bella ciao, bella ciao, bella ciao, ciao, ciao
+E se muoio
+Da partigiano
+Tu mi devi seppellir
+E seppellire
+Lassù in montagna
+O bella ciao, bella ciao.
